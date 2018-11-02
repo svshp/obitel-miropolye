@@ -1,1 +1,1 @@
-﻿# [www.obitel-miropolye.org.ua/](http://obitel-miropolye.org.ua/)
+﻿# [www.obitel-miropolye.org.ua](http://obitel-miropolye.org.ua)
